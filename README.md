@@ -1,2 +1,0 @@
-# Nikopara
-study and review
